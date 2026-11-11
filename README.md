@@ -12,7 +12,7 @@
 
 ## 视频
 
-> 演示视频整理中，可联系上方微信索取。
+> **点击查看 >>> [https://www.bilibili.com/video/BV15wWm6DE2t/](https://www.bilibili.com/video/BV15wWm6DE2t/)**
 
 ## 项目简介
 
